@@ -3,6 +3,9 @@
 ![leaked alot of poular clients](https://i.ytimg.com/vi/88QBSx6J-uE/hqdefault.jpg)
 
 just leak
+![Cards for fun](https://forthebadge.com/images/badges/contains-cat-gifs.svg)
+![Cards for fun](https://forthebadge.com/images/badges/built-with-swag.svg)
+![cards for fun](https://forthebadge.com/images/badges/it-works-why.svg)
 
 Skills: ez abit of java
 
