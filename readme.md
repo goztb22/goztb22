@@ -20,3 +20,5 @@ Skills: ez abit of java
 
 ![GitHub Activity Graph](https://activity-graph.herokuapp.com/graph?username=goztb22)  
 
+[![goztb on VTC.World](https://cdn.vtc.world/signature/6396.jpg?_1622370498)](https://vtc.world/cp/users/view/?user=6396)
+
